@@ -7,6 +7,6 @@
 - ⚡ Fun fact: ...
 dydy46
 <!---dfg
-koloposdss/koloposdss is a ✨ special ✨ repository because its `RE13456ADME.md` (this file) appears on your GitHub profile.sdds
+koloposdss/koloposdss is a ✨ special ✨ repsdfository because its `RE13456ADME.md` (this file) appears on your GitHub profile.sdds
 You can click the Preview link to take a look at your changes.
 --->
