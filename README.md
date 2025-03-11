@@ -2,7 +2,7 @@ dsfsfdsgf- 👋 Hi, I’m @koloposdss
 - 👀 I’m interested in ...rtbdf
 - 🌱 I’m currently learning ...gre
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...4474785jmhngngh
+- 📫 How to reach me ...4474785jmhngnghcds
 - 😄 Pronouns: ...sdfhyhyhhgnnhgxcvdsfdfsrer
 - ⚡ Fun fact: ...dsfasd
 gr45886233zxcewfewewr
