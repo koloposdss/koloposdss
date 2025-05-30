@@ -1,7 +1,7 @@
 ngfgfngbfgbfgbfdsfsfdsgf- 👋 Hi, I’m @koloposdss
-- 👀 I’m interested in ...rtbdfwsasfdvfcefewefwfw
-- 🌱 I’m currently learning ...gre
-- 💞️ I’m looking to collaborate on ...33dgfgfbgf33bgfbaedtetrthytrtt
+- 👀 I’m interested in ...rtbdfwsasfdvfcefewefwfwmjh
+- 🌱 I’m currently learning ...grejmhhbn
+- 💞️ I’m looking to collaborate on ...33dgfgfbgf33bgfbaedtetrthytrttjmhmjh
 - 📫 How to reach me ...4474785jmhngnghcdsrrssdsdsdf208nghghsfdsdbdfvvhgghgnhgn
 - 😄 Pronouns: ...sdfhyhyhhgnnhgxcvdsfdfsrersdfdsikngffgfgfkuiukiuiki
 - ⚡ Fun fact: ...dsfasdtrgrtadfdbfddfsssss
