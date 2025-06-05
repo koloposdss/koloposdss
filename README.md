@@ -1,6 +1,6 @@
-ngfgfngbfgbfgbfdsfsfdsgf- 👋 Hi, I’m @koloposdss
+ngfgfngbfgbfgbfdsfsfdsgf- 👋 Hi, I’m @koloposdssthr
 - 👀 I’m interested in ...rtbdfwsasfdvfcefewefwfwmjhsgddvfc
-- 🌱 I’m currently learning ...grejmhhbn
+- 🌱 I’m currently learning ...grejmhhbnthh
 - 💞️ I’m looking to collaborate on ...33dgfgfbgf33bgfbaedtetrthytrttjmhmjhdsxdsdsdx
 - 📫 How to reach me ...4474785jmhngnghcdsrrssdsdsdf208nghghsfdsdbdfvvhgghgnhgn
 - 😄 Pronouns: ...sdfhyhyhhgnnhgxcvdsfdfsrersdfdsikngffgfgfkuiukiuikijhmhjhmjhj
